@@ -23,6 +23,6 @@
 如果你想体验一个免费的、高清的日本AV免费在线播放平台，推荐尝试这些站点。资源丰富，播放流畅，无广告骚扰，是观影的理想选择。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/DV20250707/DV08 ）</span>
 
 
